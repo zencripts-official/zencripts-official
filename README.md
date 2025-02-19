@@ -35,7 +35,7 @@ At Zencripts, we aim to revolutionize web development and cybersecurity by integ
 ✅ Expert Team & Cutting-Edge Technology  
 
 ## **Get in Touch**  
-📧 Email: [contact@zencripts.com](mailto:contact@zencripts.com)  
+📧 Email: [contact@zencripts.com](mailto:zencripts@gmail.com)  
 🌐 Website: [zencripts.com](https://zencripts.com)  
 
 Join us in shaping the future of AI-powered web design and cybersecurity! 🚀
